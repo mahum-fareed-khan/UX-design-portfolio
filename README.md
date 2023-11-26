@@ -1,2 +1,2 @@
 # UX-design-portfolio
-Portfolio link 
+UX design resume 
